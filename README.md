@@ -28,7 +28,7 @@ Eğer projelerim hakkında sorularınız varsa veya işbirliği yapmak istiyorsa
 
 - **E-posta:** nazlitsr@gmail.com
 - **LinkedIn:** linkedin.com/in/nazlı-taşar-60b5351a0
-- **Diğer İletişim Bilgileri:** [Gerekirse]
+
 
 Teşekkür ederim ve projelerimi incelemeniz beni çok memnun eder.
 
